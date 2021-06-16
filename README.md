@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @Kazerty-Studio
+- 👀 I’m interested in ... programming
+- 🌱 I’m currently learning ... CSharp
+- 📫 How to reach me ... kazertystudio.contact@gmail.com
