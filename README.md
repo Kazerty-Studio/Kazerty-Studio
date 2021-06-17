@@ -4,7 +4,7 @@
 
 * **CONTACT**: [kazertystudio.contact@gmail.com](mailto:kazertystudio.contact@gmail.com)
 
-* **TIKTOK**: [@daeniak57](https://tiktok.com/@daeniak57)
+* **TIKTOK**: [@Kazertystudio](https://www.tiktok.com/@kazertystudio)
 
 * **GAMEJOLT** : [@KazertyStudio](https://gamejolt.com/@KazertyStudio)
 
